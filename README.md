@@ -1,0 +1,1 @@
+I enter all the things I WANT from my partner.  When I get their list, I select 5 items I am Willing to do this month.  The app serves up a random behavior or action to work on.  Scored by the ability of the partner to guess what has changed.
